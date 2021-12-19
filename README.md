@@ -8,7 +8,8 @@ As a nonprofit professional, I am venturing into the tech-nosphere to learn how 
 - 💪🏼 I’m currently in a dual degree Masters in Business Analytics while working full time!
 - 🌷 I’m learning how to unlearn...and to balance my career and the MBAN program...and to code! 🤣
 - 🤔 I’m looking for help with world peace 🌎🌍🌏 ✌🏽
-- 💬 Ask me about which Mexican Cusine joints are best in Dubai 🌮🌯 
+- 💬 Ask me about which Mexican Cusine joints are best in Dubai 🌮🌯
+- 📫 How to reach me: https://www.linkedin.com/in/medeiros-rt/
 - 😄 Pronouns: She/Her
 - 🎀 Fun facts: 
     - I wrestled in high school & college 🤼‍ ! 
