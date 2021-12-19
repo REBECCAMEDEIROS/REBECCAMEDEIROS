@@ -12,7 +12,7 @@ As a nonprofit professional, I am venturing into the tech-nosphere to learn how 
 - 😄 Pronouns: She/Her
 - 🎀 Fun facts: 
     - I wrestled in high school & college 🤼‍ ! 
-    - Now I practice Brazilian Jiu Jitsu and Box 🥋 🥊
+    - Now I practice Brazilian Jiu Jitsu and Boxing 🥋 🥊
     - Reading is life 📚
 
 <!--
