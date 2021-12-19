@@ -5,8 +5,8 @@
 
 As a nonprofit professional, I am venturing into the tech-nosphere to learn how to be actively involved in the digital transformation, instead of watching it go by...💭💭💭
 
-- 💪🏼 I’m currently working on my dual degree Masters in Business Analytics...
-- 🌷 I’m currently learning how to unlearn...and to balance work and the MBAN program...and to code! 🤣
+- 💪🏼 I’m currently in a dual degree Masters in Business Analytics while working full time!
+- 🌷 I’m learning how to unlearn...and to balance my career and the MBAN program...and to code! 🤣
 - 🤔 I’m looking for help with world peace 🌎🌍🌏 ✌🏽
 - 💬 Ask me about which Mexican Cusine joints are best in Dubai 🌮🌯 
 - 😄 Pronouns: She/Her
